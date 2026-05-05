@@ -1,3 +1,13 @@
+
+
+https://github.com/user-attachments/assets/d4adf8ba-2d08-4943-b423-be95b56efbf9
+
+
+
+
+
+
+
  Crypto Sportsbook Platform (Stake-style)
 
 A fully functional crypto sportsbook platform built for speed, scalability, and real-time betting.
