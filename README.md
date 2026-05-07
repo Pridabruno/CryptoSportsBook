@@ -7,7 +7,7 @@ https://github.com/user-attachments/assets/fb7e7286-7722-4fe1-b4a8-be91b339d174
 
 
 
-
+https://t.me/yosoyprida
 
 
 
@@ -59,7 +59,6 @@ Launch under your own brand and go live quickly.
 
 Serious inquiries only.
 
-Telegram: https://t.me/yosoyprida
 
 ⚠️ Disclaimer
 
